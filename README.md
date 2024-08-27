@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Divya3543
 - 👀 I’m interested in CyberSecurity | Network Security | Blockchain | Data Science |
 - 🌱 I’m currently learning AIML
-- 💞️ I’m looking to collaborate with Rakhi Sawant
 - 📫 How to reach me divyarai1413@gmail.com or contact me via my social media handles
 - 😄 Pronouns:She/Her
 - ⚡ Fun fact: ...........
